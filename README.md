@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @thesaucywench
-- 👀 I’m interested in learning how to code in pursuit of a lucrative career with great work/life balance.
+- 👀 I’m interested in learning how to code.
 - 🌱 I’m currently learning how to effectively learn and ask for help.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
